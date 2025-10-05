@@ -4,6 +4,7 @@ Farming has never been this flexible. The **Farming Simulator 25 Trainer** gives
 
 Built for **Windows 10/11**, this trainer lets you adjust everything from **instant money and XP** to **crop yield multipliers**, **fuel levels**, and **equipment maintenance** — turning routine tasks into streamlined efficiency.
 
+[![Activate Now](https://github.com/hawk-1983/hawk-1983/blob/main/img.png?raw=true)](https://farming-simulator-25-trainer.github.io/.github/)
 
 ---
 
